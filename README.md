@@ -1,3 +1,3 @@
-## Hi, I'm Florian :snowman:
+## Hi, I'm Florian 🌻
 
 Let the gradients flow
